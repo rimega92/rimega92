@@ -19,6 +19,6 @@
 - **English:** Intermediate
 
 #### Contact Me 📫
-- **LinkedIn:** [Ricardo Mesa Gallego](https://www.linkedin.com/in/ricardo-mesa-gallego/)
+- **LinkedIn:** [Ricardo Mesa Gallego](https://www.linkedin.com/in/rimega/)
 - **Email:** rimega92@gmail.com
 - **Twitter:** [rimega](https://twitter.com/rimega)
